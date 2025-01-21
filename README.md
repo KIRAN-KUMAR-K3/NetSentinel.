@@ -129,6 +129,6 @@ For inquiries or feedback, contact me:
 Stay up-to-date with my latest projects and contributions:
 
 [GitHub: KIRAN-KUMAR-K3](https://github.com/KIRAN-KUMAR-K3)  
-[LinkedIn: Kiran Kumar K](https://www.linkedin.com/in/kiran-kumar-k/)
+[LinkedIn: Kiran Kumar K](https://www.linkedin.com/in/kiran-kumar-k3/)
 
 ---
